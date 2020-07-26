@@ -1,1 +1,1 @@
-# sandeepapplabs.github.io
+# sandeepapplabs
